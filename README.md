@@ -8,3 +8,5 @@ I'm Tyler!
 
 [Youtube](https://www.youtube.com/channel/UCUdKa40A3qNa1cN2gK9Qb8g)
 
+[LinkedIn](https://www.linkedin.com/in/tyler-tracy/)
+
